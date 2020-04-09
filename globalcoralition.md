@@ -1,6 +1,6 @@
 # The Global Coralition
 
-Welcome to the Coralition CoLab! An immersive virtual experience to allow anyone around the world to connect with or contribute to the Coalition team on the ground. Their contribution and participation will be reflected in their virtual coral world.
+Welcome to the Coralition CoLab! An immersive virtual experience to allow anyone around the world to connect with or contribute to the Coralition team on the ground. Their contribution and participation will be reflected in their virtual coral world, helping reinvigorate this necessary and dying ecosystem.
 
 We use Crypto in a number of ways to engage our community and support our operations in the Dominican Republic, Thailand, and around the world into the future. 
 
